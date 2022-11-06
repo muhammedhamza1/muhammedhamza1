@@ -2,7 +2,7 @@
 - 👀 Teknojiyle ilgilenmeyi seviyorum.
 - 🌱 Öğrenciyim.
 - 💕 Yalnız'ım
-- 📫 Bama Discord, İmstagram üzerinden-
+- 📫 Bana Discord, İmstagram üzerinden-
 Ulaşabilirsiniz.
 İnstagram adresim; https://www.instagram.com/_muhammedhamza_0165/
 Discord Kullanıcı adım; Hamza_152 #0001
