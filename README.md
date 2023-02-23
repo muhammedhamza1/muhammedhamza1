@@ -1,8 +1,9 @@
 - 👋 Hi, I’m @muhammedhamza1
 - 👀 Teknojiyle ilgilenmeyi seviyorum.
+Ve yazılıma Python dilini öğrenerek başladım.
 - 🌱 Öğrenciyim.
 - 💕 Yalnız'ım
-- 📫 Bana Discord, İmstagram üzerinden-
+- 📫 Bana Discord, İnstagram üzerinden-
 Ulaşabilirsiniz.
 İnstagram adresim; https://www.instagram.com/_muhammedhamza_0165/
 Discord Kullanıcı adım; Hamza_152 #0001
